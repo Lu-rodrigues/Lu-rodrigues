@@ -13,4 +13,5 @@ Meu nome é Luana Rodrigues
   @luanarodrigues
 
 ![](https://media.tenor.com/J9cgEXjkIKYAAAAC/girl-car.gif)
-https://img1.picmix.com/output/pic/normal/2/0/5/9/10919502_690c9.gif
+
+![](https://img1.picmix.com/output/pic/normal/2/0/5/9/10919502_690c9.gif).
